@@ -1,0 +1,1 @@
+An Authentic mexican, great greasy, just regular, nice, fat, drive-through, juicy, leftover, cut-rate, crispy, mexican, vegetarian, nude, inexpensive, petrified, stale, homemade, greasy, lousy, soft, delicious, crisp, hot, terrific, fat, rotten, nice, tough, crazy, handsome, regular. The best for breakefast and lunch or maybe even a quick brunch.
